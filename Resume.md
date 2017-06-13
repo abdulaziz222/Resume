@@ -1,4 +1,4 @@
-# \_ *Abdul Aziz Nurachmady*
+# *Abdul Aziz Nurachmady*
 
 \ Mahasiswa Ilmu Komputer IPB
 \ Mesan 54 A Sinduadi, Mlati, Sleman, DIY 55284
